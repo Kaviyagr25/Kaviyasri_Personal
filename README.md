@@ -1,2 +1,2 @@
-# Kaviyasri_Personal
+# Kaviyasri Portfolio
 Personal Info - KGR
